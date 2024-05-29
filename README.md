@@ -1,0 +1,1 @@
+Lachi Música, nace en el 2018 sumando experiencia y juventud en la búsqueda de brindar lo mejor en atención y servicio pre y postventa. Apreciamos a nuestros clientes y agradecemos sus comentarios y sugerencias. Usa nuestra página Contacto para decirnos qué es lo que estamos haciendo bien y qué es lo que podemos mejorar.
